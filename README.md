@@ -7,3 +7,8 @@ Hi. this is my progress for myself. I want to make this because I want to see wh
 After 12 days of learning Python with Gemini AI, for me that was pretty good but sometimes I felt myself improved a lot but sometimes is not... BUT at least I know what the output is. And AI helped me a lot when something I don't understand I learned from that. I also try to learning about English and Italian language right now ;))
 
 — 6th February 2026 (19y) —
+
+==========================================
+
+I didn't code for 2 weeks... yeah right now my life is really busy and my mental is so bad right now, I broke up with my gf and at my collegue i should focus about my final first.
+— 18th February 2026 (19y) —
