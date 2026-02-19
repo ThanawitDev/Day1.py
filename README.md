@@ -13,3 +13,5 @@ After 12 days of learning Python with Gemini AI, for me that was pretty good but
 I didn't code for 2 weeks... yeah right now my life is really busy and my mental is so bad right now, I broke up with my gf and at my collegue i should focus about my final first.
 
 — 18th February 2026 (19y) —
+
+==============================
